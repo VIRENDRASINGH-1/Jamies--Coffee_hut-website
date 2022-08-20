@@ -1,0 +1,1 @@
+Loyal *Frequency *Discount % 
