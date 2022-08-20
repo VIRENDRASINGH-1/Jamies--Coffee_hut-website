@@ -1,1 +1,1 @@
-# New User loyal
+# New User loyal.
