@@ -1,1 +1,1 @@
-# Here will be New Discounts details will be listed for Featured products
+# Here will be New Discounts details will be listed for Featured products.
